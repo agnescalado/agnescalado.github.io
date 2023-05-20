@@ -5,5 +5,4 @@ Olá, bem-vinda, bem-vindo ao meu blog, em que escrevo sobre basicamente tudo. N
 
 
 [Justiça e caridade](http://agnescalado.github.io/blogposts/justicaecaridade.html)
-)
 
