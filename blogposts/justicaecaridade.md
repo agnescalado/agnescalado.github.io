@@ -1,4 +1,4 @@
-# Justiça e caridade: qual é mais necessário?
+# Justiça e caridade: qual é mais necessária?
 
 
 A pergunta sobre a necessidade da justiça social e da caridade se assemelha à pergunta sobre a importância do primeiro e do último passo numa caminhada: 
@@ -7,7 +7,7 @@ do outro, mesmo que a caridade tenha um caráter moral e a justiça social tenha
 
 Explico: podemos dizer da caridade que é algo bom. É bom dar esmolas. É bom agir voluntariamente. É uma qualidade individual aquilo do que surge a caridade. 
 E, no entanto, só há possibilidade de caridade num pano de fundo irregular, ou melhor, injusto. 
-Num mundo irretocável, a caridade não teria vez. Mas o mundo é um lugar injusto. Ou é o melhor de todos os mundos, segundo a exegese cristã.
+Num mundo irretocável, a caridade não teria vez. Mas o mundo é um lugar injusto. Ou, a iniquidade existe devido a um defeito moral dos humanos, num mundo que é o melhor dos mundo, segundo o cristianismo. Neste prisma, talvez sequer faça sentido a ideia de justiça social, já que não há uma injustiça de fundo, 
 
 A justiça social busca mudar o atual estado de coisas, a grosso modo, pretende reverter um status quo nocivo em busca de uma reparação radical a uma parte desprezada 
 da sociedade. Isto nada tem de bom. É claro que os proponentes da justiça social a acharão boa, mas quero dizer que sua missão não é inerentemente moral, não é boa por si. 
@@ -17,4 +17,4 @@ desequilíbrio social para adquirir valor ao sermos caridosos. Isto é, precisam
 ação para extirpar a condição da indigência, a caridade ainda será caridade.
 
 A justiça social, por outro lado, não acontece num estalar de dedos, caso ela aconteça. A inconformidade, patrona da insurgência, também está adjacente à pressa de 
-execução: mas este é um desdobramento lento de muitas histórias. A paciência do caridoso é importante para a temperança dos militantes. 
+execução: mas este é um desdobramento lento de muitas histórias. O caridoso tem um plano imediato de socorrência. Como seria diferente para quem busca justiça num âmbito social? O seu objetivo é o fim da História, por exemplo, mas como se caminha até ele? Há ações humanas individuais que concorrem a isso?
