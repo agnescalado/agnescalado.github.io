@@ -1,4 +1,4 @@
-# Justiça e caridade: qual é mais necessária?
+# Justiça e caridade: qual é mais necessária? [SOB EDIÇÃO]
 
 
 A pergunta sobre a necessidade da justiça social e da caridade se assemelha à pergunta sobre a importância do primeiro e do último passo numa caminhada: 
