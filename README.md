@@ -4,5 +4,5 @@ Olá, bem-vinda, bem-vindo ao meu blog, em que escrevo sobre basicamente tudo. N
 [Contato](http://agnescalado.github.io/about/contactus.html)
 
 
-[Posts do blog]()
+[Justiça e caridade](http://agnescalado.github.io/blogposts/justicaecaridade)
 
