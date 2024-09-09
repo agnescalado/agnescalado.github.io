@@ -1,4 +1,5 @@
 ---
-title: Welcome to my blog
+title: Diário da Agnes
+description: hello world!
 ---
 
